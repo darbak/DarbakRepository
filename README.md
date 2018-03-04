@@ -1,1 +1,1 @@
-# DarbakRepository
+Tenhle repozitø jsem si založil, protože musím. Protože NaMI. 
