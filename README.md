@@ -1,1 +1,1 @@
-Tenhle repozitø jsem si zaloil, protoe musím. Protoe NaMI. 
+Tenhle repozitar jsem si zaloÅ¾il, protoÅ¾e musÃ­m. ProtoÅ¾e NaMI. 
